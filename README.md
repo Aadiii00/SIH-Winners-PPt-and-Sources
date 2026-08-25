@@ -12,6 +12,12 @@
 
 ---
 
+🔥 Want Previous SIH Winners' PPTs & Source Code?
+🏆 ACCESS THE SIH WINNERS VAULT (2023–2025) 🚀
+https://superprofile.bio/vp/sih-winners-vault-2026-%E2%80%93-ppts---source-code--2023-25-
+
+Learn from winners. Build better. Win SIH! 🏆
+
 ## 🌟 About This Repository
 
 Welcome to **SIH Winners PPT & Resources**! 🇮🇳
